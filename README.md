@@ -27,6 +27,7 @@ Python, Obsidian, Claude Code, AMBER, GROMACS, Linux, and an unreasonable amount
 ### Reach me
 
 Twitter: [@isillyBnStupid](https://x.com/isillyBnStupid)
+Telegram: [@Sh1ZukU](https://t.me/Sh1ZukU)
 
 ---
 
