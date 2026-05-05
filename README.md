@@ -1,4 +1,4 @@
-A vibe coding newbie,passionate about everthing.
+I drink water when I'm thirsty. Not too much.
 
 [twitter](https://x.com/isillyBnStupid) · [telegram](https://t.me/shizukuyu_27)
 
