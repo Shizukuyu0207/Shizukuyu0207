@@ -1,4 +1,4 @@
-I drink water when I'm thirsty. Not too much.
+I drink a lot water when I'm thirsty. 
 
 [twitter](https://x.com/isillyBnStupid) · [telegram](https://t.me/nowa_27)
 
