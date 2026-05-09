@@ -2,4 +2,4 @@ I drink water when I'm thirsty. Not too much.
 
 [twitter](https://x.com/isillyBnStupid) · [telegram](https://t.me/nowa_27)
 
-*Disclaimer: Star counts on the above repos have no direct correlation with my hair situation.*
+*希望有一天所有人都能懂奶蛙🫶*
